@@ -1,1 +1,0 @@
-# nashevashe.github.io
